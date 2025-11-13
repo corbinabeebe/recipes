@@ -1,6 +1,8 @@
 🍯🔥 High Protein Honey Chilli Lime Chicken
 (Approx. 527 calories per serving)
 
+[Recipe Pinterest Video](https://pin.it/2pTZbaCAK)
+
 📝 Ingredients
 Chicken (cubed) 800g
 
@@ -32,6 +34,10 @@ Garlic
 
 Lime Juice (1 lime)
 
+Steamed white or brown rice - 140g (I normally cook 2-3 cups of rice and then weigh out the items)
+
+Avocado slices (half - full per plate)
+
 🧑‍🍳 Step-by-Step Instructions
 Season the Chicken: Slice your chicken into cubes. In a bowl, add the cubed chicken, fresh garlic, chili lime seasoning mix, a squeeze of honey, lime juice, and fresh coriander. Mix well until the chicken is thoroughly coated and the color changes.
 
@@ -43,4 +49,4 @@ Cook the Chicken: Heat a pan on the stove and add light butter. Cook the seasone
 
 Glaze the Chicken: Lower the heat, add a little more light butter and a drizzle of honey to the pan. Mix the chicken to coat it in the honey butter glaze.
 
-Serve: Serve the glazed chicken over hot rice. Garnish with creamy avocado slices and drizzle with the spicy sauce from Step 2.
+Serve: Serve the glazed chicken over hot rice(140g). Garnish with creamy avocado slices and drizzle with the spicy sauce from Step 2.
