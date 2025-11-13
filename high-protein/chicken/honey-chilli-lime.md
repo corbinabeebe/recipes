@@ -1,5 +1,3 @@
-You got it! Here is the High Protein Honey Chilli Lime Chicken recipe in Markdown format, ready to be copied.
-
 🍯🔥 High Protein Honey Chilli Lime Chicken
 (Approx. 527 calories per serving)
 
